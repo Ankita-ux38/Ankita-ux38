@@ -1,0 +1,7 @@
+- 👋 Hey there ,I’m @Ankita-ux38
+- 👀 I’m much interested in Coding languages , Learning something new & Music.
+- 🌱 I’m currently learning C Programming Language & HTML.  
+- 💞️ I’m looking to collaborate on Internships & Digital Projects.
+- 📫 For any queries reach me by my email : ankitashaw858@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I sing well.
